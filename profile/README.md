@@ -1,3 +1,3 @@
 ## .github
 
-Oglądaj Przepiękne! (2025) cda cały film za darmo - Przepiękne! Film Online HD po polsku, 
+Oglądaj Przepiękne! (2025) cda cały film za darmo - Przepiękne! Film Online HD po polsku, Przepiękne! caly film cda. 
